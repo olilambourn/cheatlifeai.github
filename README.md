@@ -1,1 +1,1 @@
-# cheatlifeai.github
+# cheatlifeai.github.io
